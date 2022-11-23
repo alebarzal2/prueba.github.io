@@ -1,2 +1,1 @@
-# relojBraile.github.io
-Practica Clase
+ME CAGO EN DIOOS
